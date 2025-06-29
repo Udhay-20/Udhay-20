@@ -1,4 +1,4 @@
-## Hi there 👋 It's me Udhay
+## Hi there 👋 It's me Udhaya
 
 Final-year student @ Sri Sairam Engineering College
 <img align="right" width="330" height="250" src="https://i.pinimg.com/originals/47/f0/34/47f0342cec72b800463bf003eac1257e.gif">                                                
